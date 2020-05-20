@@ -1,3 +1,3 @@
 # billgit
 I am a nerd...
-I have passion in codeing ,I want to leran how to develop web applications and AI designs.Please I need your help guys.I believe with your support I can become the programmer That I want to be.Thank you.
+I have passion in codeing ,I want to learn how to develop web applications and AI designs.Please I need your help guys.I believe with your support I can become a better programmer.Thanks in advance.
